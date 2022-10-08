@@ -1,1 +1,1 @@
-this is ravi.com
+this is rai.com
